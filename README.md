@@ -1,6 +1,6 @@
 <div align="center">
 
-⟆ ⠀SIMMER DOWN, HOTSHOT .ᐟ.ᐟ ⠀⟅
+⟆ ⠀SIMMER DOWN, **HOTSHOT** .ᐟ.ᐟ ⠀⟅
 
 ![](https://i.imgur.com/4jLxJaa.png)
 
