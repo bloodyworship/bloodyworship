@@ -2,7 +2,7 @@
 
 ⟆ ⠀SIMMER DOWN, ***HOTSHOT*** .ᐟ.ᐟ ⠀⟅
 
-![](https://i.imgur.com/4jLxJaa.png)
+![](https://i.imgur.com/Rh5AoNO.png)
 
 art by [analligator](https://www.tumblr.com/analligatorr/676908344693456896/happy-belated-birthday-sunshine) on tumblr
 
