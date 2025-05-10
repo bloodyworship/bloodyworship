@@ -7,6 +7,6 @@
 
 <div align="center"> 
  
-<sub>[**sᴛʀᴀᴡᴘᴀɢᴇ**](https://sacrilegious.straw.page/)⠀⠀⠀⠀⠀<img width="20" src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/redcross">⠀⠀⠀⠀⠀[**ᴀᴛᴀʙᴏᴏᴋ**](https://oliver.atabook.org/)</sub>
+<sub>[**sᴛʀᴀᴡᴘᴀɢᴇ**](https://sacrilegious.straw.page/)⠀⠀⠀<img width="20" src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/redcross">⠀⠀⠀[**ᴀᴛᴀʙᴏᴏᴋ**](https://oliver.atabook.org/)</sub>
 
 <div align="center"> 
