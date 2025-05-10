@@ -1,6 +1,6 @@
 <div align="center"> 
   
-![](https://komarev.com/ghpvc/?username=bloodyworship&color=973e42&label=<3&style=plastic&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=bloodyworship&color=cbb1a2&label=<3&style=plastic&abbreviated=true)
 
 <p align="center"> <img width="200" src="https://i.imgur.com/ZddRzOe.png">
 
