@@ -6,4 +6,4 @@
 
 <img src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/whitebow">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
-[**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img src="https://file.garden/Zoh6AmUPgG7Qjqjt/blackphone.gif">
+[**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/blackphone.gif">
