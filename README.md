@@ -4,4 +4,4 @@
 
 <img width="300" src="https://file.garden/Zoh6AmUPgG7Qjqjt/97b83ccdcd30f9d4d71c5a8c8729f7fb-removebg-preview.png">
 
-[**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀<img width=15 src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/whitebow">⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
+﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀<img src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/whitebow">⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/) ﹚
