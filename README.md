@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=bloodyworship&color=973e42&label=<3&style=plastic&abbreviated=true)
 
-<p align="center"> <img src="https://i.imgur.com/hoJ4OYi.png">
+<p align="center"> <img src="https://i.imgur.com/ZddRzOe.png">
 
 
 <div align="center"> 
