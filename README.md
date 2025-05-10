@@ -4,4 +4,4 @@
 
 <img width="200" src="https://i.imgur.com/ZddRzOe.png">
 
-<sub>[**__STRAW__PAGE**](https://sacrilegious.straw.page/)⠀⠀⠀<img src="https://i.imgur.com/YCtG6mJ.gif">⠀⠀⠀[**__ATA__BOOK**](https://oliver.atabook.org/)</sub>
+<sub>[**<ins>STRAW<ins>PAGE**](https://sacrilegious.straw.page/)⠀⠀⠀<img src="https://i.imgur.com/YCtG6mJ.gif">⠀⠀⠀[**<ins>ATA<ins>BOOK**](https://oliver.atabook.org/)</sub>
