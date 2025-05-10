@@ -1,7 +1,12 @@
-<div align="center">
+<div align="center"> 
+  
+![](https://komarev.com/ghpvc/?username=bloodyworship&color=cac68f&label=^__^&style=plastic)
 
-![](https://i.imgur.com/hoJ4OYi.png)
+<p align="center"> <img src="https://i.imgur.com/hoJ4OYi.png">
 
-art by [analligator](https://www.tumblr.com/analligatorr/676908344693456896/happy-belated-birthday-sunshine) on tumblr
 
-[![](https://i.imgur.com/bvJ2bmD.png)](https://toyhou.se/28901221.f2u-runeterra-stamps) [![](https://i.imgur.com/qc4S1sw.png)](https://toyhou.se/28901221.f2u-runeterra-stamps)
+<div align="center"> 
+ 
+<sub>[**sᴛʀᴀᴡᴘᴀɢᴇ**](https://sacrilegious.straw.page/)⠀⠀⠀⠀⠀<img width="20" src="https://i.postimg.cc/xjy8BQ3G/b8m6m0.gif">⠀⠀⠀⠀⠀[**ᴀᴛᴀʙᴏᴏᴋ**](https://oliver.atabook.org/)</sub>
+
+<div align="center"> 
