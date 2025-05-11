@@ -4,8 +4,7 @@
 
 <img width="300" src="https://file.garden/Zoh6AmUPgG7Qjqjt/97b83ccdcd30f9d4d71c5a8c8729f7fb-removebg-preview.png">
 
-w2i, almost always off
-tab. c + h welcome!
+w2i, almost always off tab. c + h welcome!
 
 <img src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/whitebow">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
