@@ -10,4 +10,4 @@ almost always off tab or afk, w2i!
 
 [**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/blackphone.gif">
 
-꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱
+꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱ <img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/tumblr_a7939392c6a86e744a14e3999ee3e856_e64c70ad_75.webp">
