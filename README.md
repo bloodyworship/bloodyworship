@@ -4,8 +4,6 @@
 
 <img width="300" src="https://file.garden/Zoh6AmUPgG7Qjqjt/97b83ccdcd30f9d4d71c5a8c8729f7fb-removebg-preview.png">
 
-w2i, almost always afk. c + h welcome!
-
 <img src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/whitebow">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
 [**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/blackphone.gif">
