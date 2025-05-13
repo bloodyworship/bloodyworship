@@ -5,6 +5,7 @@
 <img width="300" src="https://file.garden/Zoh6AmUPgG7Qjqjt/97b83ccdcd30f9d4d71c5a8c8729f7fb-removebg-preview.png">
 
 almost always off tab or afk, w2i!
+c + h is always welcome ೃ ✿𓈒ॱ⬭ᩙ
 
 <img src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/whitebow">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
