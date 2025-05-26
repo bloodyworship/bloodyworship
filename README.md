@@ -10,4 +10,4 @@ almost always off tab, w2i ^_^
 
 [**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img width=25 src="https://i.imgur.com/YCtG6mJ.gif">
 
-꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/helel/brownbow">
+꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/tiger.gifv">
