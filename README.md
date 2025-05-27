@@ -10,6 +10,7 @@
 
 ꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/tiger.gifv">
 
-almost always off tab, w2i⠀^__^⠀i rarely int first out of<br>
-social anxiety & i'm not the best at keeping up convos<br>
-but i really love making friends. feel free to c+h! ≧▽≦<br>
+almost always off tab, w2i ^__^ i rarely<br>
+int first out of social anxiety & i'm not<br>
+the best at conversing but i really love<br>
+making friends. feel free to c+h! ≧▽≦<br>
