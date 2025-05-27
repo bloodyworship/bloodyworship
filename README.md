@@ -4,7 +4,7 @@
 
 <img width="280" src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/eiden%20yayyy%20cropped.png">
 
-<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tvyellowandbrown.gif">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
+<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tvyellowandbrown.gif">⠀﹙ [**REN**TRY](https://rentry.co/revenantchoir)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
 [**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/pawprint.gifv">
 
