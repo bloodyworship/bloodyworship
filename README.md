@@ -2,7 +2,7 @@
   
 ![](https://file.garden/Zoh6AmUPgG7Qjqjt/tumblr_e4850d77c3416c1be59b7ceec0f62968_108d3535_75.png) ![](https://komarev.com/ghpvc/?username=bloodyworship&color=443426&label=♡&style=plastic&abbreviated=true) ![](https://file.garden/Zoh6AmUPgG7Qjqjt/tumblr_8bf6bbb1027849544d4cfaae626367a4_49cd065b_75.png)
 
-<img width="290" src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden%20yayyy%20cropped.png">
+<img width="280" src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden%20yayyy%20cropped.png">
 
 <img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/tvyellowandbrown.gif">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
