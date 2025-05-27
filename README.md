@@ -4,7 +4,7 @@
 
 <img width="300" src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden%20yayyy%20cropped.png">
 
-almost always off tab, w2i ^_^
+almost always off tab, w2i ^__^
 
 <img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/tvyellowandbrown.gif">⠀﹙ [**ꜱᴛʀᴀᴡ**ᴘᴀɢᴇ](https://sacrilegious.straw.page/)⠀⠀︵⠀⠀[**ᴀᴛᴀ**ʙᴏᴏᴋ](https://oliver.atabook.org/)
 
