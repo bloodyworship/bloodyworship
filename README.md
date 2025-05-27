@@ -12,4 +12,4 @@
 
 almost always off tab, w2i⠀^__^⠀i rarely int first out of<br>
 social anxiety & i'm not the best at keeping up convos<br>
-but i really love making friends! feel free to c+h! ≧▽≦<br>
+but i really love making friends. feel free to c+h! ≧▽≦<br>
