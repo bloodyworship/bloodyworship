@@ -8,7 +8,7 @@
 
 [**ᴘʀɴꜱ**.ᴄᴄ](https://pronouns.cc/@nightwatch)⠀⠀︵⠀⠀[**ɢᴜɴꜱ**.ʟᴏʟ](https://guns.lol/olivine) ﹚⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/pawprint.gifv">
 
-<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tiger.gifv">⠀꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱
+꒰ [**ᴇxᴛ**ᴇɴᴅᴇᴅ ɪɴᴛᴇʀᴇꜱᴛ ʟɪꜱᴛ](https://rentry.co/orville) ꒱⠀<img width=25 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tiger.gifv">
 
 almost always off tab, w2i ^__^ i rarely<br>
 int first out of social anxiety & i'm not<br>
