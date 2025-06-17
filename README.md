@@ -1,6 +1,6 @@
 <div align="center"> 
   
-<img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tiger.gifv"> ![](https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/wing%20left) ![](https://komarev.com/ghpvc/?username=bloodyworship&color=ab8270&label=⠀♡‎⠀&style=plastic&abbreviated=true) ![](https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/wing%20right) <img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/pawprint.gifv">
+<img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/pawprint.gifv"> ![](https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/wing%20left) ![](https://komarev.com/ghpvc/?username=bloodyworship&color=ab8270&label=⠀♡‎⠀&style=plastic&abbreviated=true) ![](https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/wing%20right) <img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tiger.gifv">
 
 <img width="280" src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/eiden%20yayyy%20cropped.png">
 
