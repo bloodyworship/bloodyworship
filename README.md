@@ -1,6 +1,4 @@
 <div align="center"> 
-  
-![](https://komarev.com/ghpvc/?username=bloodyworship&color=ab8270&label=⠀♡‎⠀&style=plastic&abbreviated=true) <img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tiger.gifv">
 
 <img height="260" src="https://file.garden/Zoh6AmUPgG7Qjqjt/github/okugly.jpg"><br>
 
