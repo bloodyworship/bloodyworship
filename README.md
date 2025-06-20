@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=bloodyworship&color=ab8270&label=⠀♡‎⠀&style=plastic&abbreviated=true) <img width=20 src="https://file.garden/Zoh6AmUPgG7Qjqjt/eiden/tiger.gifv">
 
-<img width="260" src="https://file.garden/Zoh6AmUPgG7Qjqjt/github/vanyaugly">
+<img width="260" src="https://file.garden/Zoh6AmUPgG7Qjqjt/github/okugly.jpg">
 
 almost always off tab, w2i ^__^ i rarely<br>
 int first out of social anxiety & i'm not<br>
