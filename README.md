@@ -4,4 +4,4 @@
 i am wherever my oomfs are (usually spawn)<br>
 [rentry](https://rentry.co/konoha)⠀⠀[atabook](https://oliver.atabook.org/)⠀⠀[listography](https://listography.com/rusame)<br>
 
-cr: rurumirai_xoxo
+cr. rurumirai_xoxo
