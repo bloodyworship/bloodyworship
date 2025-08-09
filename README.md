@@ -2,7 +2,7 @@
 
 ac: rurumirai_xoxo<br>
 [<img height="250" src="https://file.garden/Zoh6AmUPgG7Qjqjt/github/whitney.png">](https://x.com/rurumirai_xoxo/status/1944049693689806879)<br>
-[rentry](https://rentry.co/konoha)⠀⠀[atabook](https://oliver.atabook.org/)⠀⠀[listography](https://listography.com/rusame)<br>
+[rentry](https://rentry.co/cot)⠀⠀[atabook](https://oliver.atabook.org/)⠀⠀[listography](https://listography.com/rusame)<br>
 
 hello my name is oliver i am 17 turning 18 very soon and i like to play and have fun and read yaoi thanks<br>
 
